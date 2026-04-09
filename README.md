@@ -1,3 +1,3 @@
 # Adventure_Design_2
 dae Jun sick....
-GOAT OF GOAT 영쟝류 최대 아우풋 대 웅 기 
+/N GOAT OF GOAT 영쟝류 최대 아우풋 대 웅 기 
